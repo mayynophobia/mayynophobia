@@ -1,7 +1,2 @@
-o/ im may
-
-im not the smartest of individual
-
+hi
 discord - mayynophobia#9398
-
-❤️
